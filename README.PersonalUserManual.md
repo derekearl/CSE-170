@@ -1,10 +1,4 @@
 Derek Earl Week 05 Personal Project
-1. My style: According to the 16 personality test I am a protagonist.  I would agree with what the test gave me because I am a very friendly person and not afraid to take lead when no one else will. 
-2. What I value: I value trust, and that means trust in others and for others to trust in me.  I feel like trust goes a long way with people and when one can see how much they can trust their team and the ones around you, they can accomplish things that are extraordinary.
-3. What I don't have patience for: I don't have the patience for dishonesty.  Integrity goes a long with me and when we truly report things we work on we can truly better ourselves.  Even when we are wrong we can work together and make something right rather than just rush through with the wrong thing.
-4. How best to communicate with me: I am adaptable to all forms of communication, I do prefer to be contacted face to face so that I can personally help or receive help in the thing that I am doing.  
-5. How to help me:  Give me time first to try to figure it out on my own, and if I am in corner then come to me and give me tips on how to get me better in the thing that we are doing.
-6. What people misunderstand about me: I may be quiet at first, but when I am in a more smaller setting I tend to open up more and I truly care for people that are around me.  Even though I put off the lone wolf status I am 100 percent a team player.
 User Manual Week 06 Update
 Dashboard
 1. Health- The well being of the body, mind, or spirit.
