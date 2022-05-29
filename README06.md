@@ -1,0 +1,6 @@
+Derek Earl Week 06 Reflection 100 pts.
+Why is this week's topic important for teamwork (20 pts)?  Pressure is not always a bad thing.  It is a way to get into the zone and really see what you can do when time is an issue.
+How do plan on contributing to the team, besides completing your tasks (20pts)?  I will be accountable for the things that I do, whether they be good or bad and if they are bad I will fix it to make it good.
+How does your experience relate to other experiences you have had (20pts)?  I see that this week being about pressure we were able analyze ourselves.  I see that there is more that can be done to acheive when we are aware of the things that we need to do.
+Tell me about what you taught someone? And what did they learn, that they didn’t know before (20pts)?  My wife was able to apply the things that she learned in this and make it in a way that really helped her look at situations that she was in in order to make the best possible things come out bad things.
+If this was a religion class, how would you relate this week’s topic to the gospel (20pts)?  We need to look how we are pretty often in things that we are doing.  If they are bad how can we make them good, if they are good how can we make them better, and if they are better how can we make thme best.
