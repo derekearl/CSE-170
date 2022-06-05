@@ -1,0 +1,6 @@
+Derek Earl Week 07 Reflection 100 pts
+1.Why is this week's topic important for teamwork (20 pts)?  Commitment is probably one of the most important things in teamwork because if you are not commited then you will drag your team down.
+2.How do plan on contributing to the team, besides completing your tasks (20 pts)?  I will always commit to my team, and get to know them and be there for them when things start to go wrong to keep team morale high.
+3.How does your experience relate to other experiences you have had (20 pts)? There have been some times that I have not been commited on a team and it seemed that all sides suffered, and it has gone a lot smoother when I was fully commited.
+4.Tell me about what you taught someone? And what did they learn, that they didn’t know before (20 pts)? I was able to teach my niece about team commitment, she was working on a project in school and I told her she needed to commit to the things that she said she would do to ensure that the assignment would be completed.
+5.If this was a religion class, how would you relate this week’s topic to the gospel (20pts)? As disciples of Jesus Christ we are commited to bringing his vision together amongst our brothers and sisters and being his hands to help out others.
