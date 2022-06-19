@@ -1,0 +1,6 @@
+Derek Earl Technical Teamwork Week 09 Reflection 100 pts
+1. Why is this week's topic important for teamwork (20 pts)?  Everyone has role to play in when it comes teamwork, and every role is important and when one is not doing their part the whole team suffers but when everyone plays along everything goes smoothly.
+2. How do plan on contributing to the team, besides completing your tasks (20 pts.)?  I will always do my part by completeing tasks but I will also help my other teammates complete theirs as well especially if they are having a really hard time with the task.
+3. How does your experience relate to other experiences you have had (20 pts)?  I have had many roles over the years and I have been on teams where people have done their roles and when people have not done their roles and it is a lot better when people do their roles.
+4. Tell me about what you taught someone? And what did they learn, that they didn’t know before (20 pts)?  When a person does not do their role the whole team suffers and all have to do twice as much work.
+5. If this was a religion class, how would you relate this week’s topic to the gospel (20 pts)?  In the church we all have roles from Bishop to primary teacher, and when all people do their roles the church goes smoothly and all have a fufilling experience.
