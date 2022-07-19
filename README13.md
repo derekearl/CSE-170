@@ -1,4 +1,4 @@
-Week 04 Reflection Technical Teamwork 100 pts
+Week 13 Reflection Technical Teamwork 100 pts
 
 1. Why is this week's topic important for teamwork? (20pts)  If there is no cooperation in the project then nothing will get done and everyone can have a bad attitude.  If the team cooperates then the job will get done.
 2. How do plan on contributing to the team, besides completing your tasks? (20 pts.)  I will cooperate with my leaders and be sure to always help others to cooperate as well.
